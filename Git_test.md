@@ -10,4 +10,18 @@
 
 ![Текст к картинке](1666206241_12-mykaleidoscope-ru-p-kartinka-na-zastavku-oboi-12.jpg)
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## Конец инструкции))
